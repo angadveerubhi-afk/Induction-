@@ -1,6 +1,6 @@
 # Induction-
 ## Day - 1 of induction programe
-8.30 - 9.30 ~ our first day in gndec college at first we start our 4 year journey with blessing of almighty in college gurudwara sahib i closely witnessed the shape of gurudwara sahib and recite the shabad kirtan very calmly 
+8.30 - 9.30am ~ our first day in gndec college at first we start our 4 year journey with blessing of almighty in college gurudwara sahib i closely witnessed the shape of gurudwara sahib and recite the shabad kirtan very calmly 
 9.30 - 10.00 ~ after that i have tea and some snacks that are arranged very well by the college also the volunteers was helping us at every moment then after that i went to auditorium 
 10.00 am onwards the inguration cermony of our session held first we are addressed by harpreet kaur mam our HOD then our principal sir addressed us motivated everyone . His speech manly focused on being honest towards work after all the spechs given by guests made me motivated also i learn countless lessons from them 
 ## Day - 2 (Induction + Classes)
